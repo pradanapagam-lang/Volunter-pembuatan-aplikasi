@@ -8,5 +8,6 @@ Silahkan gunakan format berikut :<br>
 
 Berikut adalah daftar Volunter yang diterima :  
 * Denis, [oo.oo.id] (https://oo.or.id).
+* Rifki Hakim [Linkedin] (www.linkedin.com/in/rifki-hakim-pradana-211325387).
 
 
